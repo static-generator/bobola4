@@ -17,5 +17,7 @@
 ![image](https://github.com/user-attachments/assets/e77c6f93-5863-4631-8f8e-d69c7687c92c)
 
 # My idol
+![image](https://github.com/user-attachments/assets/d74058c5-bc1a-44e4-96ca-0c3c5d574bf7)
+
 ![image](https://github.com/user-attachments/assets/b155b98f-a787-45c6-b1d5-39c123c5576e)
 
