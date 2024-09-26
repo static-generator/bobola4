@@ -1,7 +1,7 @@
 # Bobola 4
 ## CN4
 ## Avila, Joshua Rommel C.
-# Philippines
+# Ateneo de Naga University Junior Highschool
 # Pacol, Naga City
 
 ---
@@ -16,3 +16,4 @@
 # Fave food
 ![image](https://github.com/user-attachments/assets/e77c6f93-5863-4631-8f8e-d69c7687c92c)
 
+#
